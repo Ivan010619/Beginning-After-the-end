@@ -12,3 +12,7 @@ https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapte
 https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2012.cbz
 https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2013.cbz
 https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2014.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2015.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2016.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2017.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2018.cbz
