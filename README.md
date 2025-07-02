@@ -3,3 +3,7 @@ https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapte
 https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2021.cbz
 https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2022.cbz
 https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2023.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2024.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2025.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2026.cbz
+https://github.com/Ivan010619/Beginning-After-the-end/raw/refs/heads/main/Chapter%2027.cbz
